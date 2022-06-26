@@ -2,4 +2,4 @@
 Nothing Special 😪
 
 
-[+] https://alvinbaby.github.io/mrjinn.github.io/
+[+] https://alvinbaby.github.io/mrjinn.io/
